@@ -86,7 +86,10 @@ Methodology / Challenges:
 
 Examples:
 
+
 -------------------------------Text----------------------------------
+
+
 I don't want to scare you with my story, only telling you because you need to always advocate for yourself and trust yourself.
 
 Last March, I had imaging that showed small cysts that were characterized as benign and told they are common and come and go.  I had my well-woman exam in May - all was fine.
@@ -100,9 +103,13 @@ Fine in May; Advanced cancer by August.
 Ovarian cancer is quick and very hard to detect early.  There's no screening for ovarian cancer as far as I have read, like mammogram is for breast cancer. I know cancer research centers are working on it.
 
 Advocate for yourself always.   Personally,  I wouldn't wait 10 to 12 weeks for followup. Screw that. They can do blood workup and biopsy, if viable.      
+
 --------------------------Interest Level-----------------------------
+
 Interested
+
 -----------------------------Response--------------------------------
+
 Hello,
 
 Thank you for sharing your story and for advocating for yourself. It's important to be proactive when it comes to your health, especially when it comes to conditions like ovarian cancer.
@@ -119,6 +126,7 @@ Sincerely, [Your Name]
 
 
 -------------------------------Text----------------------------------
+
 Hi everyone ❤️ I'm 32f
 
 Back in Feb of this year I got my period back after having my second kiddo. My periods have always been wonky but I've been on bc for well over a decade. Well, this summer period pains and ovulation pain got worse, ended up with a complex cyst on both ovaries, which both burts one month after the other. GYN wasn't too concerned.
@@ -129,8 +137,11 @@ I'm worried that with this progression we may be dealing with more than just end
 
 With all this in mind, should I bring it up to my pcp about my worsening symptoms? I've had so many appointments recently and another tvus a month a go that came back clear. Is it just endo that's getting worse or something more serious?
 --------------------------Interest Level-----------------------------
+
 Could Benefit
+
 -----------------------------Response--------------------------------
+
 Hi there! It sounds like you are going through a lot and I'm sorry to hear that you are experiencing such concerning symptoms. Given your family history of ovarian cancer and the genetic markers that you have, it's completely understandable that you are feeling anxious about the possibility of having a more serious condition.
 
 I wanted to let you know about the option of participating in clinical trials for ovarian cancer. Clinical trials are research studies that test new treatments or interventions for a variety of medical conditions, including ovarian cancer. By participating in a clinical trial, you would have access to cutting-edge treatments that are not yet available to the general public. This could potentially offer you new options in managing your symptoms and improving your quality of life.
