@@ -136,6 +136,7 @@ Fast forward, pain has gotten worse, suspecting endo. Have lap scheduled for Dec
 I'm worried that with this progression we may be dealing with more than just endo, i.e. ovarian cancer since that's where the majority of my sharp pains/aches are. I'll also note that I put my raw DNA through promethease and it hit for 2 BRCA1 mutations amongst other markers, and my maternal aunt passed from stage 4 ovarian cancer. I'm also scheduled in Nov to see a genetic counselor for those markers.
 
 With all this in mind, should I bring it up to my pcp about my worsening symptoms? I've had so many appointments recently and another tvus a month a go that came back clear. Is it just endo that's getting worse or something more serious?
+
 --------------------------Interest Level-----------------------------
 
 Could Benefit
